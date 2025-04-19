@@ -1,0 +1,1 @@
+# trustwallet-assets-usdtg
